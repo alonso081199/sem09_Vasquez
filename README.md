@@ -1,3 +1,8 @@
+ALUMNO: EVER ALONSO VASQUEZ HUAMAN 
+CURSO: TUTORIA CICLO: 
+5TO SECCION: C
+
+
 ✍️ Parte 1: 📊 Bitácora de mitad de ciclo
 🔍 ¿Qué aprendizajes o avances personales reconozco hasta ahora?
 He aprendido a organizar mejor mi tiempo y a priorizar actividades importantes. También he mejorado mi capacidad para trabajar bajo presión y tomar decisiones más rápidas en situaciones difíciles.
