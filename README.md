@@ -25,5 +25,5 @@ Organizarme mejor para cumplir con mis tareas sin estrés de último minuto.
 Ser mas autodidacta.
 Revisar mi agenda cada noche durante 10 minutos para planear el día siguiente.
 
-🌈 Compromiso conmigo mismo/a:
+🌈 Compromiso conmigo mismo:
 Ser constante y no rendirme aunque tenga días difíciles; reconocer mis logros sin ser tan exigente conmigo mismo.
